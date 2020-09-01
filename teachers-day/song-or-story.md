@@ -14,6 +14,6 @@ Mdm Sim was strict very very strict</br>
 when i was asking her for something</br>
 i swear i heard</br>
 ****Oh! Your approaching me?***</br>
-although this is not the case for she is very very, um... </br>
+although this was later proved false for she is very very, um... </br>
 not not kind</br>
 The end</br>
